@@ -1,1 +1,1 @@
-### [nate.unpass.net](http://nate.unpass.net)
+### [nate.unpass.net](http://nate.unpass.net/blog)
